@@ -7,6 +7,10 @@
       🤔 Estou procurando ajuda SEMPRE e SOBRE TUDO
       ⚡ Curiosidade: Sou ex Aluna de Psicologia, Brasileira vivendo em Portugal
       
+      
+            
+          
+      
 
       
       
